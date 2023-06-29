@@ -1,5 +1,3 @@
 # QLDA
 
-need to resolve.
-
-augustusflynn has updated README.md
+tungbhrelipa has updated README.md 8:10
