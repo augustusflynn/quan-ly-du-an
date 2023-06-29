@@ -1,3 +1,14 @@
 # QLDA
 
-tungbhrelipa has updated README.md 8:10
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+
+augustusflynn has changed README.md
