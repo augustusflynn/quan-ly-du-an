@@ -1,5 +1,14 @@
 # QLDA
 
 need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
+need to resolve.
 
-augustusflynn has updated README.md
+augustusflynn has changed README.md
