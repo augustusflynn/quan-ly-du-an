@@ -1,14 +1,7 @@
 # QLDA
 
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
-need to resolve.
+abc abc
+
+
 
 augustusflynn has changed README.md
